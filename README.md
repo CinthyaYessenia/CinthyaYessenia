@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hola, soy Cinthya y soy Desarrolladora Web.
+Hola, soy Cinthya y soy Desarrolladora Web y Desarrolladora de videojuegos.
 
 
 ## 🌐 Socials:
